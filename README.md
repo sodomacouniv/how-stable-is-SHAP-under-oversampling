@@ -12,6 +12,7 @@ Feel free to contact me for more details about the experiment.
 
 
 #### Andrea Sodomaco
+PhD student at Department of Engineering and Architecture, University of Trieste, Trieste, Italy
 
 email: andrea.sodomaco@phd.units.it 
 
